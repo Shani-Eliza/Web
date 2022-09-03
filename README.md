@@ -1,3 +1,5 @@
 # Web
 ## Love each other
-### Snile always
+### Smile always
+** We are friends **
+__ Hi how are you __
